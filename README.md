@@ -9,3 +9,6 @@ Durante a formação, abordei a criação de visualizações personalizadas e ex
 Sinto-me preparado(a) para gerenciar e publicar meus relatórios e workspaces utilizando o Power BI, e estou entusiasmado(a) para colocar em prática todo o conhecimento adquirido durante a formação.
 
 Agradeço pela oportunidade de compartilhar este portfólio com você e espero que possa apreciar o resultado do meu esforço e dedicação.
+
+[Certificado DIO](https://www.dio.me/certificate/058B9521/share)
+[Linkedin](https://www.linkedin.com/in/hericsonhenrique/)
