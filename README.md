@@ -11,4 +11,5 @@ Sinto-me preparado(a) para gerenciar e publicar meus relatórios e workspaces ut
 Agradeço pela oportunidade de compartilhar este portfólio com você e espero que possa apreciar o resultado do meu esforço e dedicação.
 
 [Certificado DIO](https://www.dio.me/certificate/058B9521/share)
+
 [Linkedin](https://www.linkedin.com/in/hericsonhenrique/)
